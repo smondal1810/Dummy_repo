@@ -1,2 +1,2 @@
 # Dummy_repo
-nothing just try
+nothing just only fun
